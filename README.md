@@ -8,5 +8,6 @@ Heads up: Sometimes antivirus programs or firewalls might block the software fro
 Need help? Just reach out to your seller — they’ve got you covered.
 
 🌐 Official Website: https://x2emvsoftwares.com
+
 🛒 Get the Latest X2 EMV Version: https://x2emvsoftwares.com/shop/x2-emv-software/
 
